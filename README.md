@@ -3,7 +3,7 @@
 
 I am an undergraduate student at the **Southern University of Science and Technology (SUSTech)**. 
 
-**Year:** Freshman 
+**Year:** Freshman （Class of 2030）
 
 **Ask me about:** Anything related to my coursework or tech interests.
 
