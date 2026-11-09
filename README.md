@@ -3,6 +3,8 @@
 
 I am an undergraduate student at the **Southern University of Science and Technology (SUSTech)**. 
 
-**Year:** Freshman (Class of
+**Year:** Freshman 
+
 **Ask me about:** Anything related to my coursework or tech interests.
-**How to reach me:** [ 12345678@mail.sustech.edu.cn]
+
+**How to reach me:** [12613118@mail.sustech.edu.cn]
